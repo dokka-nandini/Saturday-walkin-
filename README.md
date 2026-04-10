@@ -10,7 +10,7 @@ https://www.linkedin.com/posts/mohammad-khalandar-3570541b9_hiring-foxconn-engin
 experience anta 3 years 
 
 
-
+eu
 
 # imp 
 
