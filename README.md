@@ -6,7 +6,8 @@
 # Saturday-walkin-
 
 
-https://www.linkedin.com/posts/mohammad-khalandar-3570541b9_hiring-foxconn-engineeringjobs-ugcPost-7447919305414959104-1kDv?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAF_NGTMBFp9HBlWLr2KTFHtOsHK1jhNlegI&utm_campaign=copy_link
+https://www.linkedin.com/posts/mohammad-khalandar-3570541b9_hiring-foxconn-engineeringjobs-ugcPost-7447919305414959104-1kDv?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAF_NGTMBFp9HBlWLr2KTFHtOsHK1jhNlegI&utm_campaign=copy_link 
+experience anta 3 years 
 
 
 
@@ -17,7 +18,8 @@ https://www.linkedin.com/posts/mansoor-ahmed-03319a47_job-title-sales-career-cou
 
 over leaf account nandini programmer dhi 
 log in credentials lekunda i cant edit it
-
+10 k anta
 # chudu sheep
 
 https://www.linkedin.com/posts/mohamed-musthaba_whoever-possesses-philosophical-wisdom-leadership-share-7447931368715493376-ot9w?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAF_NGTMBFp9HBlWLr2KTFHtOsHK1jhNlegI&utm_campaign=copy_link
+ok register ka
